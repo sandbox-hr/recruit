@@ -1,5 +1,5 @@
 # 🚀 [채용] Sandbox Network DXD팀 Project Manager (PM)
-🔗 **[👉 바로 지원하기 (클릭)](https://sandbox.career.greetinghr.com/o/206830)**
+🔗 **[👉 바로 지원하기 (클릭)](https://sandbox.career.greetinghr.com/ko/o/202758)**
 ## DXD팀을 소개합니다
 
 We ​Create ​Better Together! ​샌드박스네트워크는 “크리에이터와 함께 세상을 ​더 ​즐겁게”라는 비전을 ​갖고, 콘텐츠 사업을 ​기반으로 다양한 ​사업들을 ​전개합니다.  
